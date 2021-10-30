@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AnfewMac
 - 👀 I’m interested in FiveM RP 
-- 🌱 I’m currently a film maker
+- 🌱 I’m currently a filmmaker
 - 💞️ I’m looking to collaborate on FiveM RP
 - 📫 How to reach me You can reach me through email which is amcclu01@gmail.com
 
